@@ -1,4 +1,4 @@
-## Welcome to my GitHub
+## I'm not winking. The sun is in my eyes.
 
 ![alt text](https://raw.githubusercontent.com/mistergroot/mistergroot.github.io/master/11427867_379917348878006_7770431829075985342_n.jpg "I'm not winking. The sun is in my eyes")
 
